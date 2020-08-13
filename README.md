@@ -1,1 +1,0 @@
-# IEEE_GIT-Website-Contest-Minions
